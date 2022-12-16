@@ -1,3 +1,3 @@
-#grupo-desenho-whatsapp
+#grupo-desenho-whatsapp #grupo #desenho #wha
 
 Grupo dedicado para desenhistas e animadores... pagina em progresso...
