@@ -1,2 +1,3 @@
-# grupo-whatsapp
-Grupo para desenhista e animadores no whatsapp
+#grupo-desenho-whatsapp
+
+Grupo dedicado para desenhistas e animadores... pagina em progresso...
